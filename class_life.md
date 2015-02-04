@@ -28,3 +28,34 @@ The weather can really affect my mind. I tend to be more thoughtful during rainy
 
 People have been trying to forecast the weather for thousands of years. While in the past people looked at clouds and felt the wind, today we also have advanced tools to track the weather. Let's look at this news story about weather forecasting.
 
+
+#### Weather Forecasting from Myth to Science
+As unpredictable as the weather is very common saying but it's not completely true.
+
+The ancient Greeks gave it a shot 300 years later.
+
+Red sky in the morning, sailor's warning; red sky at night, sailor's delight.
+
+The need for accuracy in weather predictions is great for many industries. Airelines need up-to-date weather reports in order to avoid dangerous weather. Farmers rely on forecasts in order to plan daily work as well as planting and harvesting schedules.
+
+
+#### Seasons
+
+Spring is beautiful but rainy, and summer is relaxing but so hot! We like different seasons for different reasons. What is your favorite season and why? I like autumn because I like watching the leaves change color and cover the ground. Which season is your favorite?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
