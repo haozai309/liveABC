@@ -79,7 +79,9 @@ Which transportation methods do you prefer? Can you think of the disadvantages i
 I think I prefer in a place with a well-developed public tranportation system. A lot of people get around the city by subway and buses. What is your main method of transportation and way? Is it comfortable, convenient, or just cool?
 
 
+### Convenience
 
+Convenience sotres are truly there to make our lives more convenient. They're accessible and sell many of the things we need at a low price. Let's learn some words that will make it more convenient for you at the convenience store.
 
 
 
