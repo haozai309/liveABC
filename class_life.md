@@ -9,6 +9,7 @@ How is your listening? If you listen for keywords you can often get enough of th
 
 Vocabulary words are the building blocks of your new language. The more words you know the better you can express yourself and understand other people. We're going to practice vocabulary with these new few tasks. Are you ready to apply what you've learned?
 
+Reading improves your vocabulary and gives you a sense of how words fit together. Don't read the word individually, but get a sense of how the words and sentences fit in with what the author is talking about.
 
 Can you master keys words, phrases, sentence patterns, and analysis the structure of the text? You have to grasp the meaning of a sentence in order to communicate. That's why we'll do some tasks to practice looking at words in sentences and expressions.
 
