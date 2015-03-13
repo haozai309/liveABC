@@ -31,7 +31,7 @@ Let's see how closely you were listening by testing you in this exercise.
 How has the weather been recently? Can you describe your local climate? Let me tell you a bit about mine. **Spring is comfortable. Summer is hot, but rarely humid. Autumn is clear and bright. Winter is crisp and clean.**
 
  
- You can say "it is raining cats and dogs", if it's raining very heavy. Or you can also make sentences like: "We can't go now because it's raining cats and dogs." **You know, I really don't mind rain that much. Falling asleep to rain is actually quite enjoyable.** Try to describe the weather and understand the weather forecast on the news.
+ You can say, "it is raining cats and dogs", if it's raining very heavy. Or you can also make sentences like: "We can't go now because it's raining cats and dogs." **You know, I really don't mind rain that much. Falling asleep to rain is actually quite enjoyable.** Try to describe the weather and understand the weather forecast on the news.
  
 
 The temperature will drop in a few days.
@@ -68,10 +68,10 @@ How do you usually get around? I use the subway because it's quick and I don't h
 What's your favourite form of transportation? Sometimes I wish I had a helicopter to take me wherever I needed. That way I could just soar above all the traffic. 
 
 
-There are various types of transportation including air, ground and rail. Subways and public transportation are the center of major city operations. Let's keep working on transportation words. How many different types of transportation can you name now? Keep naming things as you see them.
+There are various types of transportation including air, ground and rail. Subways and public transportation are the centre of major city operations. Let's keep working on transportation words. How many different types of transportation can you name now? Keep naming things as you see them.
 
 
-This morning, the subway was so crowed I was almost crushed! What is the best way to commute? Each method of transportation has advantages and disadvantages. let's learn how to describe them in today's lesson.
+This morning, the subway was so crowed I was almost crushed! What is the best way to commute? Each method of transportation has advantages and disadvantages. Let's learn how to describe them in today's lesson.
 
 
 Which transportation methods do you prefer? Can you think of the disadvantages in the way you usually travel? Hopefully you think it's worth the trouble. 
@@ -88,9 +88,43 @@ Convenience stores are truly there to make our lives more convenient. They're ac
 A convenience store is a small store or shop that may sell items such as sweets, ice-cream, soft drinks, lottery tickets, cigarettes, newspapers and magazine, and perhaps some groceries. There's no place on Earth that has as many convenience stores as Taiwan.
 
 
+## Level 3
 
 
+### Sports
+
+My brother likes very old-fashioned sports, like horseback riding and archery. Do you play any sports? What activities do you like to do best? Today we're going to learn some words for adventurous activities.
 
 
+In the winter, my friends and I go up to a ski resort. It's always a lot of fun to ski and snowboard during the day and gather around the fireplace at night. Do you prefer winter sports or summer sports? Let's go over the words we just learned.
+
+
+Are you interested in any of these sports? I think I might want to try rock climbing sometime, and there's an outdoor rock climbing gym nearby that I think I'll check out. Think about the sports that we learned today. Are there any you'd like to try?
+
+
+How often do you go outside and experience nature? I've been going on hiking trips with my brother since we were little and we've seen all sorts of amazing things. Let's learn some sentences that will help us to when we experiencing the great outdoors.
+
+
+Here's a hiking tip I learned: bring plenty of water and snacks, and don't hike alone. Hiking is a great way to experience nature, and these phrases will help you the next time you go outside. Let's practice them.
+
+
+There are hiking trails for all levels of hikers, whether you're an expert or a beginner. Are there any hiking trails near you? Give yourself a chance to use what you learned in today's lesson by going for a hike or a long walk. Make sure you take some time to enjoy the scenery.
+
+
+There are indoor people and outdoor people. I'm more of an indoor person, but I do enjoy going outside. What sore of person are you? Different people often have different hobbies, as we'll see in today's lesson. Listen closely.
+
+
+Mondays, we have bowling.
+Tuesdays, we play pool.
+Wednesdays, we go dancing.
+I can hardly keep track of it all!
+It sounds so wonderful!
+Well, you should be careful what you wish for!
+
+
+I spent the entire weekend writing, it was very productive. What do you like doing in your spare time? Are you ready to go out and do some kind of hobby? We can't do that yet, but we do have to be careful to manage our time or we can get tired out. Let's go over today's lesson with an exercise.
+
+
+What are your spare time interests? How do you enjoy your time? Talk to your friends about the hobbies you share. Do you have different hobbies? Then talk about why you like your hobbies -- maybe after talking, you can try something new!
 
 
