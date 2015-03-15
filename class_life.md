@@ -22,6 +22,15 @@ Let's move on to this sentence scramble.
 
 Let's see how closely you were listening by testing you in this exercise.
 
+
+Let's work on some tasks that will improve your writing ability! A big part of writing is making sure words flow naturally from one idea to the next. As we work on writing, you'll get a feel for how a good piece of writing flows.
+
+
+Notice how that essay was structured -- one main idea, which was backed up by examples proving that main idea. It's not enough just to say something -- you have to prove it with examples. Let's first practice with an exercise.
+
+It's time for another essay. Don't worry; you're going to do great! Remember to stat what you think and then back it up with good reasons. If you do this, you'll build a very convincing case. Good luck!
+
+
 ---
 
 ## Level 2
@@ -126,5 +135,30 @@ I spent the entire weekend writing, it was very productive. What do you like doi
 
 
 What are your spare time interests? How do you enjoy your time? Talk to your friends about the hobbies you share. Do you have different hobbies? Then talk about why you like your hobbies -- maybe after talking, you can try something new!
+
+
+Do any of those activities appeal to you? I'll be honest, I don't think air sports are my thing -- falling through the sky is more a nightmare than a dream for me. Personally, I prefer hot springs. It's time to check up on what you learned. Get ready for an exercise.
+
+
+Plan out an adventure trip and think of things you might want to do. What would your days like? Hang gliding in the morning and rafting in the afternoon? A week of hiking and camping? See how many activities you can list.
+
+
+I've been cooped in the city for too long, and I'm feeling the need to get some fresh air. When is the last time you enjoy some time outside? The outdoors can offer both adventure and peace of mind.
+
+
+## Level 3
+
+### Clothes
+
+What clothes do you have on now? Are you comfortable with them? You've probably noticed that I enjoy my personal sense of style when it comes to clothing. What do you usually wear? The words in today's lesson will help you to shop for clothes wherever you go. Let's try it.
+
+Have you ever asked a salesperson for help in a clothing store? They can also give you advice on what to wear. Alright, let's see how well you can find your way around a clothing store by finding the items in this picture.
+
+Why don't you try people watching? Sit somewhere with a friend and notice well dressed people. Take note of the things you like which people are wearing. Maybe you can adopt some styles for yourself.
+
+
+
+
+
 
 
