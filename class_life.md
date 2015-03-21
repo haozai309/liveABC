@@ -346,14 +346,47 @@ Like it or not, secrets, gossip, and rumours are just something we have to deal 
 
 
 Don't tell anybody.
+I won't tell a soul.
 This is between you and me.
 She can't keep a secret.
 This is for your ears only.
 Don't say you heard it from me.
 Cross my heart and hope to die.
 Don't breathe a word of this.
+My lips are sealed.
 
 Benjamin Franklin said, "Three can keep a secret if two are dead." I think I agree with him -- secrets have a way of getting out. While gossip can be fun to hear and spread around, it's less fun when you're the one being gossiped about. Let's practice dealing with gossip with this exercise.
+
+Gossip can be a verb or a noun. You call the rumours that spread around gossip, but a person who spreads rumours around is called a gossip. Basically, a gossip spreads gossip. I think the best thing to do is to avoid gossips and gossip altogether and just keep secrets to myself.
+
+Online chat is a way of communication by sending text messages to people in the same chat-room in real-time. There are all kinds of new words and ways to communicate. Let's read about some of them in today's lesson.
+
+The Internet and cellphone texting are really changing language. And there are more functions available to us these days. Do you use IM or chatrooms? Do you use it to talk to friends or do you talk to strangers as well? Let's review the reading with an exercise.
+
+The Internet makes it very easy to talk to people from across the world. There are plenty of places online where you can practice English by typing to other people. Go online and try it.
+
+
+### Astrology
+
+What's your start sign? I'm a Virgo, so I'm supposed to be neat, smart and loyal. Do you think that describes me? We'll learn more about astrological signs in this lesson.
+
+Do you ever check your horoscope? Some people take astrology very seriously. Do you think it says something about who you are or do you think it's just silly? I don't usually believe in that stuff, but I still read my horoscope every day -- I don't want to take any chances! Let's try an exercise.
+
+12 ones
+Aires, Taurus, Gemini, Cancer
+Lion,Virgo, Libra, Scorpio
+Sagittarius, Capricom, Aquarius, Pisces
+
+Find out the star signs of your friends. What personality traits and characters are they supposed to have? Do those personality traits match up with what you think of them?
+
+Divination is the world for using signs, like start signs, to find out things that we might not otherwise know. Some of my friends take it pretty seriously, but I'm a little suspicious. What do you think? Let's listen to the dialogue.
+
+
+
+
+
+
+
 
 
 
