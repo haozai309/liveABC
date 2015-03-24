@@ -1,7 +1,6 @@
 
-
-
 # Life English
+
 
 Tags: English
 
@@ -509,6 +508,17 @@ It might be useful to also practice dialogue for 911 and other emergency calls. 
 Do you know anything about repairing or maintaining a car? Are you prepared for emergencies? Preparing for emergencies can seem unimportant until you actually run into one. Let's follow Nick, Lisa and Mary on their road trip into the mountains.
 
 There are plenty of emergency preparedness books and manuals to help you. Assemble an emergency kit and make sure you pack all the important things you've learned, like a first aid kit and a flash light. You might one day be glad you did.
+
+* I have a great sense of direction. Relax.
+* Did you get the car tuned up?
+* It looks like we had a bit of a fender bender.
+* Whose side are you on?
+
+Have you ever gotten lost on long drive? Getting lost is part of every road trip. In my opinion, not knowing where you'll end up is part of the adventure!
+
+A good way to prepare for the road is to practice what to say if you get into an accident. Have your insurance on hand, and practice dialogue to trade information and explain what happened to lead up to the accident. Make sure you're polite, and everything will go smoothly.
+
+
 
 
 
