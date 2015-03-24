@@ -3,6 +3,8 @@
 
 # Life English
 
+Tags: English
+
 ---
 
 How is your listening? If you listen for keywords you can often get enough of the sentence to be able to understand through context. Let's try some tasks that involve your listening skill!
@@ -30,6 +32,7 @@ Notice how that essay was structured -- one main idea, which was backed up by ex
 
 It's time for another essay. Don't worry; you're going to do great! Remember to stat what you think and then back it up with good reasons. If you do this, you'll build a very convincing case. Good luck!
 
+Writing clear sentences can be tricky. One thing that can make a sentence clearer is to connect it clearly with the sentences before it and behind it. Does your essay flow nicely? It's a lot easier to make something clear when it's in context. Try it out.
 
 ---
 
@@ -381,27 +384,131 @@ Find out the star signs of your friends. What personality traits and characters 
 
 Divination is the world for using signs, like start signs, to find out things that we might not otherwise know. Some of my friends take it pretty seriously, but I'm a little suspicious. What do you think? Let's listen to the dialogue.
 
+Telling the future can also involve things like the I Ching, Tarot Cards, or even flipping a coin. Have you ever tried it? Let's see how closely you were listening with this exercise.
+
+A lot of newspaper have a horoscope section, where it predicts your future based on your star sign. Find a newspaper and read your horoscope. Who knows? You might learn something you really need to know.
 
 
+### Recreation & Hobbies
+
+I spent all weekend watching old movies. What do you usually do on this weekends? Today we're going to learn words that might help you describe how you spend your days off.
+
+I think the best thing about having a hobby is meeting other people with the same hobby. It's always fun to talk about your interests. Do any of these hobbies catch your interest? Let's practice what we've learned.
+
+Are you kind of person who collects action figure or the kind of person that goes hiking? Well, there's no reason you can't do both! Identify your hobbies the next time you have some free time.
+
+Have you made any friends over the Internet? I love chatting to people online and I love to make new friends online. Do you have any friends that live far away? the Internet is a great way to stay connected to other people. Now, look at the sentences in today's lesson.
+
+I hope you didn't give out personal details.
+
+How you act online can reflect how you act in real life. I use correct grammar and spelling when I type online -- what do you think that says about me? Let's practice by doing this exercise.
+
+Do you have a lot of friends? There are all sorts of ways to make friends online. You might want to try an online game. When you're playing a game online, you can interact with people from all over the world and accomplish things together in a virtual world.
+
+How's your dating life? Asking someone out on a date can be a pretty scary experience. And preparing for a date isn't easy either -- there are all these decisions you have to make and you have to worry about what the other person will think about your outfit. Listen to today's lesson as Craig get ready for a date with Patricia.
+
+Guys, can I pick your brains on choosing a movie?
+Can I bend your ear for a while, Lisa?
+
+What do you have to lose?
+Well, she could say no, break my heart, and get every girl in school to laugh at me.
+
+What do you usually wear on a date? I wear a nice shirt and a tie because I feel that dressing up shows how much I care. Have you learned anything from the lesson? Let's find out.
+
+What's your idea date? Does it involve dinner and a movie, a coffee shop, or a walk in the part? Plan out a date, even if it's just in your head, and try to use some of the things you've learned. Who knows? Maybe the plan will come in handy soon.
+
+What would life be like without friends? I love making friends at the workplace. Working with friend makes a job much more enjoyable. What do you usually do with your fiends. Let's watch as Tim and Donald try to kindly a new friendship with each other.
+
+* Well, who says you have to have a lot in common to be friends?
+* I think it's safe to say that we don't see eye to eye in terms of interest.
+* We really don't have much in common.
+* What do you like to do in your free time, Donald?
+
+Well, I still hope that Donald and Tim can be friends. What type of people do you get along with best? I'm friends with plenty of people whom I have nothing in common with. Let's practice the lesson with this exercise.
+
+Learning English is a lot harder when you're not speaking it regularly. And it's better to direct your conversation somewhere that it is to talk alone. Even talking to a mirror is better than talking alone, or better yet, try talking to your pets.
+
+What does friendship mean to you? What kind of people do you make friend with? My best friend Jim is an incredibly loyal person, and an amazing pianist. What do you like most about your friends? Keep this question in mind as we move through today's lesson.
 
 
+### Do yourself
+
+Is there anything in your house that needs fixing? Do you have the tools to fix things in your house? The words in today's lesson will help you out the next time you need something from the toolbox.
+
+I confess, I seem to end up hurting myself every time I try to fix something, but that doesn't stop me from trying. Being handy is a useful skill. Let's go over it with this exercise.
+
+With today's words, opening up your toolbox will give you plenty of practice identifying tools. I was just looking through my toolbox and realise that I need a new set of pilers from the hardware store. You might also want to visit a hardware store and see what tools they have for sale.
+
+Yesterday I was trying to fix the sink for an hour. It was messy, but I felt pretty good about myself when I fixed it. Fixing something yourself can be difficult, but very satisfying. Nick and Lisa are going to try to fix things in today's lesson. Let's see how they do.
+
+It can't be easy to switch the water faucet with the lights. In fact, that's probably harder to do than actually fixing the electrical appliances or the plumbing. You know, I'm actually impressed with Nick. Let's review what Nick and Lisa did.
+
+I'd be shocked to learn that an expert like me could forget anything.
+
+Maintenance is the act of making sure something is working properly. Doing maintenance on your plumbing, for example, means making sure the pipes aren't leaky or in danger of bursting. Is there anything around your house that requires maintenance?
+
+I keep some small plants by my window. Flowers can really brighten up a place. Do you like looking at gardening shows on TV and reading gardening magazines? Do you like gardening? Let's listen in as Deb tries to interest Lance in gardening.
+
+Gardening on TV looks fun, but gardening in real life already seem as if it will be a lot of work.
+
+* Don't give your plants too much water and fertilizer.
+* Growing plants takes time.
+* All of the plants are so green and healthy.
+
+Are you allergic to anything? I love flowers but around springtime I just can't stop sneezing. Spring allergies are called "hay fever", and they usually flare up because of the pollen in the air. Let's try an exercise.
+
+Do you do any gardening? What kind of equipment do you need to have gardening as a hobby? You might not be able to name too many, but it's worth a try. Also, give some thoughts to starting a garden, it's a worthwhile activity that you can take pride in.
+
+Why is junk food so delicious? How often do you eat junk food? I just bought a deep fryer and I've been eating French fries every day, but I'm starting to think that all the oil isn't good for my health. How much oil food do you eat? If you eat a lot, it might be time for us to start cutting back. Let's watch as Andy deals with the consequences of his junk food diet.
+
+* I'm not a rabbit. I'm a human being.
+* Say goodbye to junk food and hello to a healthy yogurt diet!
+
+Reading that recipe is making me hungry for yogurt. Who knew healthy food could sound so delicious? I think I'm going to try to make yogurt meal later. For now, let's review.
+
+I think I'm going to cut back on French fries. Do you find yourself eating too much junk food? Try out the yogurt meal you read out today, and look for other healthy alternatives.
 
 
+### Travel
+
+It's healthy to get out of the city and go into the woods. Hiking and carrying everything you need on your back is a great feeling. Here are some vocabulary words for the next time you decide to experience the great outdoors.
+
+All of the things we've just learned are very important for camping. Forget even of of them and you could be in big trouble -- what are you going to do if you forget your water canteen? Or if you get hurt and forget your first-aid kit? Let's practice remembering with an exercise.
+
+A store that sells camping equipment is a great place to practice today's vocabulary words and also to get ready for your next camping trip. I think I need a new pair of hiking boots because my other ones are falling apart. Do you know what you need to buy to go on a camping trip?
+
+Have you ever had to lead people and take suggestions? It can be hard to make everyone happy with so many people giving you different ideas. Let's listen as Albert and Betty try to plan their class trip.
+
+A lot of suggestions sounded pretty good. I would love to go to a nice restaurant with a swimming pool. What would you have done? Let's unscramble some sentences with this exercise.
+
+Plan a trip by writing down the places you might like to go. Try to name as many as you can. Maybe you'll think of something so spectacular that you'll end up taking a vocation.
+
+What do you like to do on a summer trip? Have you ever tried camping? I've gone camping plenty of times, usually with people who are better at it than I am so I don't get lost or eaten by a bear. Jeff is an outdoor person, Gina isn't -- let's see how they get along.
+
+Fresh air! It's so great to get out of the  city.
+
+Have you booked your vocation? Where would you rather go: an outdoor adventure, or a full service resort? Mountain lake or swimming pool? Fishing or room service? Weight the pros and cons and see which one comes out on top.
+
+It look like our friends had a lot to deal with, but I bet that night sky was worth it. It's pretty hard to see stars and the Milky Way with all the lights we have on today if you live in the city. Let's move on to an exercise.
 
 
+### Accident
 
+Ah, the freedom of the road! There's nothing quite like gunning your ride down the freeway, leaving your troubles behind. You have to always be prepared for problems thought, so let's learn some words that have to do with car trouble in today's lesson.
 
+Do you have a car? Do you drive regularly? I usually take the subway, but sometimes I wish I had a car just so I could travel with air conditioning! Now that you've learned these words well, you'll be riding again in no time.
 
+You don't need trouble to practice these words. The next time you're on the road, practice what you've learned: the parts of the car for instance, tire, trunk, that sort of thing, and the parts of the road too, lane, shoulder, and median. If you get into an accident, you can practice the accident words too.
 
+Have you ever broken a bone or badly hurt yourself? It happens to most people before they're 10 years old. It can also happen while you're doing something physical, like hiking. In today's lesson, we'll learn some key sentence to deal with medical emergencies, especially if you're far away from help.
 
+Do you keep calm in an emergency? It's important not to panic when something unexpected happens, especially if you're far from help. Let's practice the sentences so you'll be ready in the next emergency.
 
+It might be useful to also practice dialogue for 911 and other emergency calls. If an emergency is bad enough, you want to immediately call the authorities instead of waiting and letting the problem get worse. It's easy to find 911 dialogues online, practice them so you'll be ready.
 
+Do you know anything about repairing or maintaining a car? Are you prepared for emergencies? Preparing for emergencies can seem unimportant until you actually run into one. Let's follow Nick, Lisa and Mary on their road trip into the mountains.
 
-
-
-
-
-
+There are plenty of emergency preparedness books and manuals to help you. Assemble an emergency kit and make sure you pack all the important things you've learned, like a first aid kit and a flash light. You might one day be glad you did.
 
 
 
