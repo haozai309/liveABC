@@ -519,6 +519,105 @@ Have you ever gotten lost on long drive? Getting lost is part of every road trip
 A good way to prepare for the road is to practice what to say if you get into an accident. Have your insurance on hand, and practice dialogue to trade information and explain what happened to lead up to the accident. Make sure you're polite, and everything will go smoothly.
 
 
+### Hospital
+
+Have you ever been to a hospital? Whether it was to get better yourself or to visit someone you care about, a hospital visit is something that everyone has to do at some point. Today we're going to work on things that you'll commonly see at a hospital.
+
+The hardest words here are probably the types of doctors. Those words, like "obstetrician" and "pediatrician", are from Latin and Greek. Keep working and you'll get them.
+
+You might not be able to get to a hospital, but hospital shows are all over TV these days. Tune in to a hospital show and identify some of the words you've learned today.
+
+Do you remember the last time you visited your doctor? You might find it challenging to let your doctor know exactly what's wrong with you, but the sentences we're going to learn today might help. Let's work on phrases that you can use when visiting the doctor to describe how you're feeling.
+
+I get the flue about once a year, otherwise I don't get sick very often. How often do you get sick? Do you usually go to the doctor right away, or do you put if off until you're very sick? Let's prepare for a doctor's visit with this exercise.
+
+You should know how to describe your symptoms because describing them accurately is very important to help a doctor find out what's wrong with you. Practice the phrases you learned today so that you can explain how you're feeling when the time comes.
+
+* Well, I've been sick as a dog since last night.
+* Shall I pencil you in?
+* What seems to be the problem?
+* I've booked you in.
+
+Pool Bill, let's hope he gets over his food poisoning quickly. Have you ever gotten food poisoning? I had an awful weekend with food poisoning a couple months ago. I don't think I'll ever eat tacos again.
+
+Bill was able to describe his symptoms accurately and his doctor was able to quickly diagnose what was wrong with him. Do you think you can identify your symptoms when you're sick?
+
+Prescription medicine is medicine that is controlled by the government. Over-the-counter medicines are medicines that you can buy without a prescription.
+
+Have you ever had to take prescription medicine? Did you follow the instruction that were laid out in this article? These directions might be useful for the next time you need to take a prescription medicine.
+
+* Your health is worth the extra effort.
+* First of all, you need a doctor's prescription for your medicine because it's a controlled substance.
+
+You've been learning all about how to talk to a doctor and how to take medicine, and I hope this information has been useful. I know I've learned a lot. Hopefully you never get sick and have to use the stuff you've learned, but in case you do, you know exactly what to say to your doctor.
+
+
+### Use the internet
+The Internet is great, but in order to look at webpages, you need an internet browser. Today's lesson will get you familiar with the parts of an internet browser.
+
+There are a lot of different browsers that you can use to surf the Internet -- which do you use? Do you think you've learned enough words to be able to name the different parts of a browser?
+
+Open up your browser at home and see if you can still remember everything you learned today. You can change your language settings for a tougher challenge.
+
+The Internet has opened up the world for a lot of people. Where you used to have to visit a library, today you can find out about whatever you want instantly and without leaving home. Today we've going to work on speaking some phrases that you might use on the computer.
+
+The Internet has changed a lot in a few years. If you can remember, there was a time when the Internet as we know it was just forming. Listen closely to these news stories from the past 10 years for a blast from the past.
+
+
+### Spare time
+
+Going down to the local cafe and having breakfast with a friend  is truly a pleasure. Cafes are great for catching up with friends, for getting some work down, or just for sitting and relaxing with a nice cup of coffee. Do you like visiting cafes? Let's learn some words you would use in a cafe in today's lesson.
+
+
+
+## Level 6
+
+## Travelling
+
+Where did you go the last time you took a trip? The last time I traveled, I forgot my passport and had to drive all the way back from the airport to get it, I barely made it back in time for my flight. Packing is an important part of any trip.
+
+Travel agents can be very useful if you need some help planning a trip. They can arrange flights, hotels, even entire tours for you. Even so, there's a lot you have to do yourself when getting ready to go somewhere.
+
+* Prepare for the worst so you can focus on having the time of your life.
+
+An airport can be a fun. There are restaurants, duty-free shopping... But no place is fun if you're stuck there, which happens a lot at airports.
+
+I really don't like waiting for my luggage at the baggage claim because I'm always afraid my bag won't show up. Customs and immigration aren't much fun either, with all the questions they ask you. What's your least favorite part of traveling by airplane?
+
+* Go down the escalators at the end of the hallway, and the baggage claim is on your right.
+
+What is airpot security like in your country? It's important to know how to answer the questions at immigration and customs. Be prepared to answer questions like, "How long will you be staying?" and "Do you have anything to declare?" Practice answering these questions and it'll make your next trip through the airport a breeze.
+
+
+### Hotel
+
+Hotel staff members work very hard to make sure guests are comfortable. We can start showing our appreciation by making sure we know what the different jobs are called.
+
+What was your last hotel experience like? I stayed at a cheap motel last time I went traveling, but it was cozy enough. When you're tired from traveling all day, a cheap motel can feel like a grand resort!
+
+Knowing how to ask to get something fixed is a useful ability in many situations. Whether you have to ask for a light bulb to be changed in your hotel room, or you need another glass of water at a restaurant, it pays to be polite -- remember to say "please" and "thank you".
+
+Once you arrive in a new place on a vocation, getting a few key things sorted out can be helpful. You should get your money exchanged as well as tourist information and transportation right at the airport.
+
+* You won't be rich for long if you let all the pickpockets in the airport see your money.
+
+Chris and June are really into adventure travel. Have you ever gone to a new place without much preparation? I usually plan out my trips weeks in advance, but figuring things out as you go along can also be a great experience.
+
+Using the Internet, it's much easier to find a great deal without using a travel agent. However, it's smarter to do research into every aspect of your trip before you go ahead and hook something.
+
+
+### Transportation
+How often do you take the subway? Most major cities have subway and bus systems for people to get around. Public transportation makes it a lot easier not to own a vehicle of your own. Let's learn some key phrases that will help when you're riding on public transportation.
+
+I take the subway regularly, because I think it's the most convenient way to travel. A lot of cities still use subway tokens, but more and more are replacing them with electronic cards.
+
+Have you ever been completely lost in a new city? Public transportation can really be confusing when you visit a place you've never been before.
+
+
+
+
+
+
 
 
 
