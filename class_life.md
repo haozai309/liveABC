@@ -613,12 +613,41 @@ I take the subway regularly, because I think it's the most convenient way to tra
 
 Have you ever been completely lost in a new city? Public transportation can really be confusing when you visit a place you've never been before.
 
+In the United States it's easy to rent a car -- all you need are money and a driver's license. Another tip: try to look online to compare prices and see what car you like, and see if the car company will come and pick you up or pay for your taxi cab fee. Good luck.
 
 
+### Department store
+
+You can find almost anything you want in a department store. Department stores are called that because they're almost made up of separate, well, department. Let's learn the names of the different departments in this lesson.
+
+* We should take some souvenirs back to our friends.
+* Do you sell duty-free items?
+
+Do you have any souvenirs? Do you ever buy some for your friends? All of my souvenirs are on my bookshelf -- I have little models of all the monuments I've seen.
+
+Do you usually go shopping when you travel? Exchanging money, buying a tour package, and shopping for souvenirs are all parts of taking a vocation.
+
+It's important to keep track of how much money you spend when you come to a new place, especially if you're not familiar with the currency. I love trying out all the local cuisine, whether it's fish and chips in an English pub or curry in India. What do you usually spend your money on when you go on vocaion?
 
 
+### Airplane
 
+What's your opinion of airplane food? A lot of people complain, but I quite like it. On an airplane, you can try all sorts of different cuisine delivered to you in a neat little package. 
 
+Have you ever travelled with a tour group? Which do you prefer, travelling with a tour, or independently? There are good and bad sides to both.
+
+* Travelling alone can be lonely.
+* I carry traveller's checks and a money belt, and I have travel insurance.
+* I travel on a shoestring.
+* All of this would cost a fortune if I arranged it separately.
+
+If time travel becomes a possibility, we must also consider whether it's ethical. If we each had the ability to go back and change history, the present and future would also change. Human nature is selfish and imperfect. Imagine the troubles that would arise from each of us getting our individual wishes fulfilled.
+
+Perhaps it is better that we learn from past mistakes and accept that everything happen for a reason. Each step that we took in the past led us to where and who we are today. Life is too short for regret. Instead, we should focus on each step we take toward the future.
+
+The past is history, tomorrow is a mystery; today is a gift. That's why we call it the present.
+
+What amazing places have you visited? Can you remember details about them? Can you remember the things you saw, heard, even smelled? Now, what amazing place would you still like to go?
 
 
 
