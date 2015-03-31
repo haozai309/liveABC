@@ -649,6 +649,9 @@ The past is history, tomorrow is a mystery; today is a gift. That's why we call 
 
 What amazing places have you visited? Can you remember details about them? Can you remember the things you saw, heard, even smelled? Now, what amazing place would you still like to go?
 
+No matter how well you prepare for a trip, something can go wrong. Your luggage can be lost, or your passport might get lost or stolen. Sometimes the best thing we can do is to be prepared for the worst.
+
+
 
 
 
