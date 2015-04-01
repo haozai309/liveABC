@@ -652,7 +652,13 @@ What amazing places have you visited? Can you remember details about them? Can y
 No matter how well you prepare for a trip, something can go wrong. Your luggage can be lost, or your passport might get lost or stolen. Sometimes the best thing we can do is to be prepared for the worst.
 
 
+### Emergency
+
+A couple year ago I saw smoke coming from a building down the street and I called the fire department. They managed to save the building thanks to my phone call. Maybe these sentences won't just help you ask for help, but help other people in an emergency.
+
+Emergencies can even happen anywhere. Do you know what to do if you're stuck in a hotel fire of, worse yet, in a place crash?
 
 
+## Level 7
 
 
